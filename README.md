@@ -10,5 +10,4 @@ njb
 nbjh
 bjbj
 njn
- jh
 njn
